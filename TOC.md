@@ -1,3 +1,6 @@
+---
+title: I Returned to the Immortal's Youth
+---
 Last updated: 2025-02-20
 
 [Novel Updates Page](https://www.novelupdates.com/series/i-returned-to-the-immortals-youth/)
