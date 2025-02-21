@@ -1,5 +1,5 @@
 ---
-title: Welcome to OOC Translations!
+title: About me
 ---
 Hi there!
 
