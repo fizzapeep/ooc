@@ -1,5 +1,5 @@
 title: Welcome to OOC Translations!
 
-[About me]({% link ooc/about.md %})
+[About me]({% link about.md %})
 
-[I Returned to the Immortal's Youth]({% link ooc/IRIY/TOC.md %})
+[I Returned to the Immortal's Youth]({% link IRIY/TOC.md %})
