@@ -11,4 +11,4 @@ Last updated: 2025-02-20
 
 | Chapter |Date posted |
 | --------| -----------|
-| 26      | Title      |
+| [26]({% link IRIY/26.md %})    | Title      |
