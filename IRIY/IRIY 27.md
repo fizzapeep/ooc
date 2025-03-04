@@ -1,0 +1,211 @@
+# Chapter 27: Futai (3)
+
+Exiting from the back door of the Sun Manor, one would find a river called Changming.
+
+The waters of Changming River churned ceaselessly, icily reflecting the pale moonlight.
+
+The result of Yan Qing flipping the copper coin led them to head upstream, entrusting the outcome of their search to fate. At the river's source was a waterfall, and to the side of the waterfall, a small path led up a mountain. The path's steps were mottled with snaking bloodstains, a glaring crimson. From the looks of it, the bride should have escaped into the valley from here.
+
+"Searching high and low, only to find it effortlessly." Yan Qing put away the copper coin and smiled. "See? My intuition is always spot on."
+
+Xie Shiyi paid no heed to his words. "What do you plan to do after finding the bride?"
+
+Yan Qing was delighted. "How can these words come out from your mouth? Demonseeds are universal evildoers and must be executed at first sight. Isn't that right, Alliance Leader?"
+
+Xie Shiyi laughed emotionlessly.
+
+If they could see the bloodstains, then the disciples investigating ahead of them should naturally have seen them as well.
+
+Everyone followed the bloody trail in pursuit, finally stopping inside a temple. The plaque above the entrance bore three large, neatly written characters: "Jiangjin Temple."
+
+Yan Qing was familiar with this name. This was the very place where Madam Sun said the Zhang family's seventh young mistress was murdered—why did Zhang Mushi flee here?
+
+By the time he and Xie Shiyi entered, a group of Wangqing Sect disciples headed by Ming Ze had already set up an enclosure and were vigilantly watching a kneeling woman donned in bridal robes.
+
+After committing murder, Zhang Mushi didn't escape to the valley, nor did she deliberately hide.
+
+She staggered to this temple, leaving various traces along the way.
+
+Because the Zhang family's seventh young mistress had previously been gnawed to death by wolves here, Jiangjin Temple had been sealed off and was completely deserted—until today.
+
+A chilly breeze stirred the yellow paper on the ground.
+
+Red candles cast a bloody, scarlet hue on the temple's golden Buddha. The divine statue sat high upon the shrine, a lotus resting in its palm, gazing upon all beings with compassion.
+
+Dark red flesh remained under Zhang Mushi's fingernails from when she devoured her husband. Each finger was slender, and a few fingernails were split or ripped off. As she kneeled before the Buddha, her bridal robes were as red as blood. Her phoenix crown and silver ornaments had fallen off during her desperate run. Those behind her could only see her frail, almost breakable waist and her cascade of jet-black hair trailing along the ground.
+
+It was hard to believe that such a thin woman could cause such bloody devastation on her wedding night.
+
+Ming Ze was a bit doubtful and asked with a frown, "Zhang Mushi?"
+
+Zhang Mushi's faced her back towards them, bent at her waist, and caressed something unclear with her fingers. With a husky voice, she asked, "Are you all the immortals sent specifically to execute demons?"
+
+Everyone was shocked after hearing her speak. Their impression of a demonseed whose phantasm awakened was an insane and malevolent creature whose reason was completely out of reach. She was only a mortal, yet how could she be so clearheaded now?
+
+Zhang Mushi's voice was very strange, ear-shatteringly hoarse like a ragged bellow of wind. She said, "You don't need to rush to kill me. I killed Sun Hebi. The Sun Family will never let me go, and I have long since lost the desire to live. I have taken a poison—by tomorrow, my insides will rot away, and I will die.”
+
+After Zhang Mushi finished speaking, she faintly smiled and stood up from the prayer mat.
+
+At this moment, everyone finally got a clear look at what she had just been fiddling with.
+
+A corpse.
+
+A corpse of a young girl that was rumoured to have been so disfigured by wolves it no longer looked human.
+
+Its skull and limbs were meticulously cleaned, every stain carefully wiped away by Zhang Mushi, restoring the girl's final dignity.
+
+Ming Ze was speechless.
+
+Zhang Mushi turned around. In the eyes of the people of Qingle City, the Zhang Family's fifth young mistress, Zhang Mushi, was endowed with both virtue and talent. She was well-versed in literature and etiquette, excelling in calligraphy and painting—a renowned lady of a prestigious household. But now, her hair was disheveled, her figure emaciated, cheeks sunken, and cheekbones protruding. She looked ghastly, like a specter emerging from a tomb.
+
+Ming Ze subconciously looked at Zhang Mushi's eyes. When a phantasm awakened, the most obvious change would be in the eyes. Yet, in Zhang Mushi's bloodshot eyes, there was no trace of green.
+
+Ming Ze asked in a deep voice, "Zhang Mushi, are you or are you not a demonseed?"
+
+Zhang Mushi gave a distressed laugh, the tears in her eyes glistening. "Immortal masters, I am not a demonseed. But if I didn't do this, you wouldn't have come. Qingle City's real demonseed is someone else. I have waited here for you for three days, and you all have come at last."
+
+Ming Ze was instantly shaken. He furrowed his brows even tighter. "You're saying someone else is a demonseed in Qingle City?"
+
+Zhang Mushi's smile was full of despair and mockery. "Yes, I'll take you all there now."
+
+Everyone was stunned. Never in a million years did they expect to encounter something like this on their first mission.
+
+Zhang Mushi’s feet were covered in wounds, festering and scabbed over, yet she seemed completely unaware of the pain, numbly making her way down the mountain.
+
+Thousands of red floating lanterns hung in Qingle City. Zhang Mushi’s emaciated figure looked like a wandering spirit walking down the street. 
+
+Unexpectedly, the place she was taking them turned out to be the Sun Manor—
+
+As they spent the night walking back and forth along the river, by now, the sky was already bright. 
+
+The alleys of Qing Street were still littered with colorful paper confetti and firecracker remnants, leftovers from the joyous festivities of her wedding day. In the blink of an eye, a celebration had turned into a funeral.
+
+Zhang Mushi was originally very peaceful, but upon seeing the entrance of the Sun Manor, her entire being suddenly became agitated. Her pace quickened, faster and faster, trampling over scattered ashes and along the bluestone road.
+
+Because she was walking too fast, in a moment of carelessness, she stumbled and fell. Yet, she immediately scrambled to her feet and raised her arm to grab the door knocker, pounding on it desperately, her bloodshot eyes filled with desperation, her voice unfathomably bleak. "Open up\! Liu Jinyun\! You better open this door up\!—Liu Jinyun\! Open up\!"
+
+The one who opened the door was the Sun family's butler.
+
+The instant the butler saw Zhang Mushi, he was so scared he fell to the floor, and the blood drained from his face. With a shrill voice, he started screaming, "Demonseed\! Demonseed\! Ahhh, demonseed\!"
+
+That night, there were already few Sun family members who could sleep soundly. At daybreak, everyone was startled by this commotion and left their bedrooms.
+
+Master and Madam Sun walked out together. Behind them, Old Lady Sun walked alongside Sun Junhao. A group of servant girls and young attendants followed closely behind.
+
+The moment Madam Sun saw Zhang Mushi, her hatred was so great it surpassed her fear of demonseeds, and her eyes instantly reddened.
+
+With long strides, she walked over and slapped Zhang Mushi on the face. With a shrill voice, she asked, "Zhang Mushi\! You dare return\! What debt does the Sun Family owe you?"
+
+By the time she finished cursing, she started crying. "When has the Sun Family ever wronged you, Zhang Mushi? Why would you do this to me… why would you do this to me?"
+
+Behind her, Master Sun was scared pale by her actions.
+
+Zhang Mushi, covering the cheek that had just been slapped red, kneeled on the ground without resistance or madness. She only gave a faint smile.
+
+After seeing her smile, Madam Sun came to her senses about what she had just done. She staggered two steps backward, yet looking at Zhang Mushi's face, she couldn't help but let her tears fall like rain. "Zhang Mushi, I've always treated you like my own daughter. After the incident with the Zhang Family's seventh young mistress, everyone in the city gossiped about you, made conjectures about you, but I never did\! I trusted you, I pitied you. Because you were my future daughter-in-law, I never doubted you—but you? In return, you did this to me. Zhang Mushi—" Her voice broke bitterly. "You've deceived me so badly\!"
+
+"You're actually a demonseed\! You're actually a demonseed\! You've deceived me so badly."
+
+Old Lady Sun leaned on her walking stick and stood under a locust tree, fury filling each wrinkle. She asked the Wangqing Sect disciples, "What are you guys doing? Why are you still letting her live—aren't you cultivators supposed to kill demonseeds on sight, with no exceptions? Why are you letting her create a disturbance here?\!"
+
+Zhang Mushi was stooped towards the ground with her fingers propping her up, but upon hearing Old Lady Sun's question, she lifted her head in a flash of understanding. With her teeth chattering, she said, "Old Lady Sun, isn't the real demonseed Sun Hebi and that precious grandson of yours?" She then looked at Madam Sun. "Liu Jinyun, how can you have the face to accuse me of deceiving you? Between us, who is cheating who—who is the one who clearly knows her own son is a demonseed yet is concealing all news? Between us, who is deceiving who?"
+
+Old Lady Sun was so enraged that her entire body trembled. "Zhang Mushi, how dare you spout such nonsense here\! Guards\! Someone\! Seize her for me\!”
+
+The servants of the Sun Manor trembled with fear, not daring to move. Ever since the rumors of a demonseed spread through Qingle City, everyone had been living in fear, unwilling to step outside. They had only dared to peek out now because of the presence of the Wangqing Sect disciples, but no one dared to step forward and touch Zhang Mushi.
+
+Zhang Mushi stood up from the ground. Her time was running out, yet she only held frenzied hate in her eyes. Her face looked like she was both crying and laughing, twisting into a deranged expression.
+
+"Do you know why I ate your son, Liu Jinyun?"
+
+Madam Sun kept backing up, covering her chest. She was nearly unable to breathe.
+
+Zhang Mushi merely said, "Because I was hungry, Liu Jinyun."
+
+Zhang Mushi repeated, "Because I was hungry."
+
+Upon hearing these words, Madam Sun ultimately had nothing to say. She stared at Zhang Mushi as if she had seen a ghost, her expression frozen. Yet, in her eyes, there was more than just fear. There was something deeper, something unspeakable.
+
+Zhang Mushi's tears started falling drop by drop. "Remind you of anything, Liu Jinyun? I believe these are the words that Sun Hebi and your younger son have often said to you throughout these years, right?"
+
+"I was hungry. Because I was hungry."
+
+"That day, he also said those words to me."
+
+"I saw with my very own eyes how they devoured my seven-year-old younger sister alive. Sun Hebi knelt on the ground, crying and apologizing to me. He said he didn't mean to. He said he was merely controlled by the phantasm."
+
+"He said he was a victim, he said it was only because he was hungry."
+
+"Sun Hebi said the year Sun family's ancestor detected his innate phantasm, he gave him a bead to swallow. That bead kept his innate phantasms under control, and he lived over twenty years with no problems. That day at Jiangjin Temple, the bead had simply lost its effect. He said he would immediately return home and ask his ancestor for another one. He begged me to pity him, to forgive him."
+
+As she recalled that day, Zhang Mushi remained dazed and utterly hopeless, just as before.
+
+Her teeth chattering, she smiled. "Sun Hebi said he was controlled by the phantasm and that he only ate my sister because he was so hungry he couldn't stand it."
+
+—"Mushi, I'm hungry. If I don't eat, I'll die."
+
+—"The phantasm inside my body, it's coming out\! It's talking to me. Mushi, I'm hungry\! Mushi, save me\!"
+
+That eerie, bloody night at Jiangjin Temple, 800 buddhas stood there watching, solemn, silent.
+
+Sun Hebi kneeled on the ground, grabbing at her skirt with hands full of blood, crying bitterly.
+
+Not far away was a young boy seven years of age, just like her little sister—the Sun family's youngest young master, Sun Guangyao. Sun Guangyao sat next to the girl's corpse, licking the blood on his fingers, the remanents of flesh still stuck between his teeth. He looked towards her with a smile, an expression filled with ridicule and provocation.
+
+Sun Hebi begged her, yelled at her, and, at last, directly threatened her.
+
+He said if she dared spread the news that he was a demonseed, he would kill the entire Zhang family and leave her to die without a grave.
+
+He said his ancestor was a Great Elder of Futai Sect, and that even if he was a demonseed, nobody dared harm him.
+
+He said he loved her and begged her to forgive him.
+
+Actually, that was a good day.
+
+The mountain temple's peach blossoms bloomed vibrantly. Before she married, she went up the mountain to worship with her sister, to pray for a harmonious home, to pray for a lifelong union of hearts. She had barely met the man she was to marry, but bound by her parents' arrangement and the matchmaker’s words, she was willing to devote a lifetime of gentleness to uphold this marriage.
+
+Her sister held her hand and followed her up the mountain, her voice melodious and sweet, and recited with all smiles, "Delicate clouds weave intricate patterns, shooting stars carry unspoken sorrow, across the vast Milky Way, they meet in secret..."[^1]
+
+Soft as water, the perfect moment, like a dream. After that, every night, it felt as though this voice could awaken her. Something cold fell to her lips, like the deep chill of blood from Jiangjin Temple. It was only when she woke up that she realized it was her own tears.
+
+Zhang Mushi withdrew herself from her memories, and blood rushed up her throat. Serverely, she said, "What about Sun Guangyao then, Old Lady Sun, Madam Sun? Where is Sun Guangyao, your beloved grandson? Why won't he come out? Make him come out and face me\!"
+
+Old Lady Sun was so mad she could hardly breathe, nearly fainting. She thumped her walking stick heavily on the ground. "Are you cultivators just going to ignore a demonseed causing a ruckus like this?\!"
+
+Sun Junhao sighed and prepared to make a move.
+
+Ming Ze barred his way and spoke, "Hold on."
+
+He looked at Old Lady Sun, his attitude neither servile nor overbearing. "Old Lady Sun, rest assured, we won't ignore the harm she has done. But please respond honestly, is what Zhang Mushi says true?"
+
+Old Lady Sun immediately refuted, "Of course she's raving nonsense, slandering us with her malicious lies\! How could the words of a demonseed be taken seriously?"
+
+Ming Ze said, "In that case, please let the Sun family's youngest young master come out to see us."
+
+Old Lady Sun was silent for a minute.
+
+Madam Sun bit her lip and said, "Immortal masters, after coming back from Jinguang Temple, Guangyao became sick. Right now, he's bedridden and can't receive guests."
+
+But at this moment, Old Lady Sun's expression suddenly chilled, and she coldly said, "Zhang Mushi has already been found. You all can leave. Junhao, close the door and see the guests out."
+
+Sun Junhao: "..."
+
+Sun Junhao's head suddenly hurt.
+
+Ever since the Sun family's ancestor became a Great Elder of one of the Nine Great Sects, even this old lady could be haughty with an air of arrogance and lawlessness.
+
+Qingle City was a city of mortals; disciples of the Nine Great Sects seldom stopped by.
+
+She was uncultured and short-sighted. The cultivators she had encountered before were sectless and were courteous to her on the basis of her connection to Futai Sect, allowing her to believe that cultivators were no big deal.
+
+So, it was possible that this old lady wasn't aware that the cultivators standing before her were wholly not the kind they could afford to provoke, nor the kind they could send away at a whim.
+
+Sun Junhao sighed exasperatedly and said to Old Lady Sun, "Mother, how about you go back and rest first."
+
+He then said to Ming Ze, "Apologies, my mother just lost her grandchild, and her emotions are a bit unstable. I hope you won't take offense, fellow Daoist."
+
+Ming Ze didn't acknowledge the apology, merely saying, "Fellow Daoist Sun, bring the Sun family's youngest young master out."
+
+TN: Rip Zhang Mushi, you get five big booms. Never trust a bitch named Guangyao\!\!
+
+[^1]:  Opening lines of Qin Guan’s poem Immortal at the Magpie Bridge, about the Cowheard and Weaver Girl
