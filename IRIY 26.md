@@ -1,0 +1,255 @@
+# Chapter 26: Futai [^1](2)
+
+The sect hurriedly prepared cloud boats for them.
+
+The disciples who had just entered the sect were young, and when faced with the prospect of descending the mountain for the first time, they were so excited that they bombarded Hengbai with questions, refusing to let him go.
+
+“Elder, elder, what do demonseeds look like?”
+
+“Elder, elder, how many days will we be gone?”
+
+Hengbai rolled his eyes to the heavens, pissed off yet again. “Won’t you guys know what demonseeds look like once you see for yourselves? Won’t how long we’re gone depend on how long it takes you guys to complete the mission? What’s the point in asking me?”
+
+Hengbai didn’t have an ounce of patience for this group of brats, lifting them up one by one onto the flying boats.
+
+Hengbai was a dignified Great Ascension cultivator—wasn’t he just a bit on the younger side? Yet the Sect Master went so far as to scold him for being hot-tempered and sent him to this ridiculous academy for a year to mellow out\! What a waste of his time\!
+
+Hengbai said disdainfully, “It’s just a single mortal demonseed. If you guys can’t even handle this, just go to the nine thousand nine hundred steps and jump off.”
+
+The disciples weakly replied, “Oh.”
+
+Hengbai wanted to rush away, but as soon as he turned to leave, someone lightly tapped his shoulder.
+
+That person used a familiarly sloppy tone to ask him, “Elder Hengbai, do we have any shixiongs or shijies to lead us this time?”
+
+Hengbai’s veins throbbed. Now, he got mad whenever he heard Yan Qing’s voice. He angrily said, “You need someone to lead you to take care of a mere mortal demonseed? Your brain must’ve…” He stiffly swallowed the words “your brain must’ve been kicked by a donkey” back into his throat. The instant he lifted his head, he looked exactly like a bird caught by its neck, his eyes nearly popping out.
+
+Yan Qing’s lips held a smile while he tauntingly waved a hand in front of his face. “Elder Hengbai, elder Hengbai…”
+
+Xie Shiyi was looking at the wooden sword in his hand. His eyes were lowered, his expression obscured by his long black eyelashes. The simple and elegant clothes of a Wangqing[^2] Sect disciple seemed to take on a cool and otherworldly feeling when worn by Xie Shiyi, like morning dew and distant wind.
+
+Hengbai’s tongue was in knots, and he couldn’t even speak properly. It was like a bolt of lightning struck him. “Xiexiexiexie, Xie-shixiong…”
+
+It had already been ages since Xie Shiyi last used a wooden sword, and he wasn’t used to it even after holding it for a while. With a wave of his fingers, he crushed the wooden sword, the white particles falling with a rustle. When he heard Hengbai’s voice, Xie Shiyi lifted his head and looked at him with his utterly frigid, pitch-black eyes.
+
+“...”
+
+Hengbai felt his legs go soft under him. Just as he was about to hit the ground in a kneel, Yan Qing's voice called him back to his senses. He lazily said, "Elder Hengbai, when will the cloud boat set off?"
+
+Hengbai ignored him and stared blankly at Xie Shiyi. After the initial shock and fear had passed, his eyes began surging with rapture and worship. Excitedly, he asked, "Xie-shixiong, how come you're here? Are you leaving the sect?"
+
+Xie Shiyi mildly said, "Going to Qingle[^3] City."
+
+Hengbai thought he had turned deaf. "Qingle City?\!"
+
+Yan Qing didn't feel awkward after being ignored. From the side, he helpfully added, "That's right, didn't a bride from Qingle City turn into a demonseed? Xie-shixiong is going down the mountain to smite demons."
+
+Hengbai wanted to glare at Yan Qing to tell him to shut up, but he could only hold back in front of Xie Shiyi. Brimming with incredulity, he asked again, "Shixiong, why are you going to Qingle City?"
+
+Xie Shiyi laughed coldly and indifferently said, "Are you hard of hearing?"
+
+Hengbai: "..."
+
+On the side, Yan Qing couldn't hold back his cackling. Facing these two, Hengbai suffered humiliation in all respects.
+
+Yan Qing stifled his laughter. He said to Hengbai with schadenfreude, "Elder Hengbai, next time your family's son-in-law speaks, please listen up."
+
+Hengbai couldn't be angry at his deeply respected and revered Xie-shixiong, and could only feel ashamed after being criticized by him. But after hearing Yan Qing's words, he exploded, glaring at him. "Don't you have any shame?"
+
+This scene really was straight out of "The Immortal Son-in-law"[^4].
+
+A shameless grassroots son-in-law, a pure and innocent young mistress, and an indignant maidservant beside the young mistress. 
+
+Yan Qing was inwardly laughing his head off and even wanted to get one last taunt in, but suddenly, he was tugged away by that pure and innocent "young mistress."
+
+"Wait\! Xie Shiyi, what are you doing? Walk slower\! You're pulling my hair\!"
+
+Yan Qing cherished his hair more than his own life, but Xie Shiyi always did as he wished. He was forced to keep up with Xie Shiyi's pace, protecting his hair while shouting.
+
+Yan Qing lifted his hand to see the red string unraveled from his wrist, flowing along with the mountain breeze. Although the Xie Shiyi in front of him never turned back, his pace did slow a bit. The sleeves of the two people fluttered in the sunset glow. Although they harbored completely different temperaments, their tall figures blended together perfectly.
+
+Hengbai was still fuming, feeling that Yan Qing truly was a bastard who took advantage of others yet loved to show off. But when he raised his head and saw the couple's retreating silhouettes, his resentfulness and complaints vanished.
+
+Ahead, Yan Qing had finally rescued his hair, half amused and half angered, and gritted his teeth to say something to Xie Shiyi. Xie Shiyi lightly nodded and patiently listened to him speak. By the time Yan Qing finished, the corners of Xie Shiyi’s lips curved faintly—an almost imperceptible smirk tinged with cold mockery. He lifted his eyes to meet Yan Qing’s gaze. The wind howled down the cliffside as white flowers swept across the vast sky. The instant their eyes met, light and shadow seemed to fade into the background, leaving only the two of them—every movement, every word, familiar to the depths of their souls.
+
+Hengbai was frozen in place, only coming back to his senses after a long while. This was the first time he had felt that… the head disciple who stood at the apex of the cultivation world had such liveliness, such sincerity.
+
+Yan Qing's experience riding a cloud boat this time was incomparable to his first.
+
+Last time, the cloud boat they rode back from Huichun[^5] Sect to Nanzhe[^6] Province was absolutely the most expensive one owned by Wangqing Sect.
+
+The cloud boat they were riding this time had jack shit, not even a single room.
+
+Yan Qing looked around, at last sarcastically saying, "Yaoyao, accompanying me must be such a grievance for you." No wonder Hengbai thought Yan Qing was a thorn in his side—just look at the kind of shabby life Wangqing Sect's crown jewel was living by following Yan Qing around\!\!
+
+Yet, while he had already acted out the third episode of "The Immortal Son-in-law", complete with an elopement, Xie Shiyi still hadn’t spared him a single glance.
+
+Said crown jewel even laughed lightly and said coldly, "Don't speak what's on your mind—I don't want to know." After speaking, he headed to the cloud boat's rooftop. His footsteps radiated a deep, chilling aura, forming a barrier separating himself from others.
+
+Yan Qing: "..."
+
+Yan Qing watched his departing figure in disbelief. "Are you really here to accompany me to train?"
+
+The cloud boat reached Qingle City after a day of travel. From the conversations of the other disciples, Yan Qing also carefully understood the situation at hand. The deceased was Sun Hebi, the second young master of Qingle City's Sun family. The new bride was also from a prestigious family, the Zhang family's fifth young mistress, Zhang Mushi. In others' eyes, the Sun-Zhang pairing was a match made in heaven—nobody could have dreamed of such an atrocity happening on their wedding night.
+
+As it happened, when they arrived, Qingle City was in the middle of spring, and every flower in the city was in full bloom. Cars moved like rivers and horses moved like dragons to host the Floating Lantern Festival. However, due to the gruesome, bloody murder in the city, fear gripped the hearts of the people, and the festival was temporarily put on hold.
+
+Every main street and narrow alley was deserted, yet countless lanterns still hung in place, untouched and unremoved. One after another, they stretched across the closely packed pavilions, forming a vast sea of lights. The dazzling display painted a scene of prosperity and celebration, frozen in time.
+
+It was night when they disembarked the cloud boats, but the lanterns illuminated the city like daylight.
+
+Knowing that the visitors were disciples from Wangqing Sect, the head of the Sun family, Master Sun, led a group of sons and daughters to welcome them. With no shixiongs or shijies to lead them, Ming Ze, as the only inner-peak disciple, naturally became the leader of the group
+
+Master Sun bowed his head in greeting, deferential and respectful. "Greetings, esteemed immortal masters\!"
+
+His beautiful, ample-figured wife, Madam Sun, standing beside him had likely been crying for days. With swollen eyes, she also bowed upon seeing them. "This concubine greets the esteemed immortal masters."
+
+Ming Ze nodded and replied, "First, take us to the crime scene."
+
+Master Sun, filled with trepidation and reverence, said, "Yes, immortal masters, follow me."
+
+Yan Qing trailed after the rest of the group. He was fascinated by the lantern-packed Qingle City behind them and frequently turned back to look at it. Actually, the Red Lotus Pavillion[^7] he previously resided in also had many lanterns, but they were all blue, eerily illuminating the bones of the dead. Yan Qing's aesthetic tastes really weren't that outlandish—it was that crazy old eunuch from the pavilion who thought that Yan Qing's image at the time suited this freaky setting. Haha.
+
+Yan Qing reluctantly withdrew his gaze and said, "Xie Shiyi, after we finish exterminating this demonseed, let's visit the Floating Lantern Festival."
+
+Xie Shiyi was only here to accompany him through his Nascent Soul formation. Even toward the investigation of Zixiao's death, he was unfeeling and callous, to say nothing of his attitude toward Qingle City's murder case. Ignoring Yan Qing's suggestion, he merely asked, "How long until you form your Nascent Soul?"
+
+Yan Qing thought briefly. "I think maybe within two or three days?"
+
+Xie Shiyi: "En."
+
+Yan Qing glanced around and asked again, "Did you sense any trace of the demonseed?" Xie Shiyi, the leader of the Immortal Alliance and a Soul Formation cultivator, probably didn't even need to step foot in Qingle City—he could have slain the demonseed bride from thousands of miles away.
+
+Hearing this, Xie Shiyi let out a light scoff, his frosty words striking fear into the hearts of his listeners. "Wasn't this supposed to be the training experience of your dreams? Why are you asking me?"
+
+Yan Qing: "...Oh\!"
+
+Yan Qing thus began the training experience "of his dreams."
+
+To ease the cultivators' investigation, the Sun-Zhang couple's new house was preserved in its original state.
+
+The instant the door was pushed open, a repugnant stench of rot hit them like a tidal wave, causing the disciples, many for whom this was their first time descending the mountain, to turn pale and retch. Yan Qing peered inside—blood flooded his vision. It was splattered across the ground, the table, the bed, even the roof beams. The corpse of the Sun family's second young master laid on the wedding bed, gnawed away so thoroughly that only a skeleton was left behind. The skin of his head was torn off, bloated due to decay, and maggots writhed through the leftover flesh.
+
+Besides blood, the floor was coated in a yellowish-white matter that looked eerily like human brains.
+
+The scene was one of brutality and carnage, directly from the depths of hell.
+
+Madam Sun's sorrow surged, and once again, she used a handkerchief to wipe away her tears, sobbing silently to the side.
+
+Master Sun also couldn't bear to look any longer. He turned away, his voice trembling as he said, "Immortal masters, this is where my son was murdered."
+
+A pale-faced Wangqing Sect disciple asked Ming Ze, "Ming-shixiong, was that bride really a demonseed?"
+
+Ming Ze was born into an influential family of cultivators from Nanzhe Province, and he had encountered various situations such as this one since childhood. He walked forward, touched the blood on the table, and sniffed it.
+
+The fundamental method of identifying a demon seed in the cultivation world was through phantasm detection. However, celestial artifacts capable of perceiving phantasms were as rare as phoenix feathers. Even the prestigious Wangqing Sect couldn't possibly grant a single Earth-tier celestial artifact to this group of new disciples.
+
+Ming Ze furrowed his brows, looked at the destruction in front of him, and softly said, "After a phantasm awakens, a demonseed will become bloodthirsty and savage, craving human flesh. Looking at the current situation, the Zhang family's young mistress is undoubtedly a demonseed whose phantasm awakened."
+
+When Madam Sun heard this, her sobs immediately became louder, her voice filled with despair and mourning. "It's all my fault. How could I be so blind as to choose her as a daughter-in-law? It was me who harmed my Hebi, it's my fault, it's my fault, it's all my fault\!"
+
+Master Sun sighed deeply, comforting her, "Madam, don't blame yourself. Before the phantasm awakened, nobody could've known that she was a demonseed. This wasn't your fault,"
+
+Madam Sun's tears soaked her makeup, and her whole body trembled. "No, no, master, no. Do you remember the Zhang family's seventh young mistress? A month ago, the Zhang family's seventh young mistress went with her up the mountain to worship, and they both went missing. When they were found, I heard that the seventh young mistress was completely devoured by a wild wolf. But where are there any wolves within a hundred miles of Qingle City? At the time, someone told me that after she returned from her worship, Zhang Mushi started acting gloomy and strange. I didn't take it seriously before, but looking back on it now, it was obvious she was a demonseed\!"
+
+"The way I see it, that seventh young mistrees died at her hands. Zhang Mushi was that wild wolf."
+
+The more Madam Sun cried, the more grief she felt, gasping, "It's all my fault, it's all my fault. I knew all this but never suspected her, I was the one who killed my poor Hebei\!"
+
+The Wangqing Sect disciples were entering the mortal world for the first time. Seeing her weep so sorrowfully, they found themselves at a loss for words.
+
+At this moment, an aged voice filled to the brim with bitterness reached their ears.
+
+"What's the use in crying? What's done is done, the most important thing now is to look for Zhang Mushi."
+
+Everyone turned to look back and saw the brightly lit Sun Manor. A young man in a flowing blue robe, at the Nascent Soul stage, was gently supporting an elderly woman with graying hair as they slowly approached.
+
+The old woman looked to be in her sixties, with a hunched back and a walking stick. Her face was full of wrinkles and unconcealable, intense resentment.
+
+The appearance of the cultivator at her side was ordinary, but his presence was extraordinary. His blue robes were embroidered with white feathers around his lapels and cuffs—they were the robes of the Fuhua[^8] Sect.
+
+Master Sun hastily moved to greet the pair. "Mother, second eldest brother."
+
+The old lady was the matriarch of the Sun family, and the young Fuhua cultivator was Sun Junhao. Apart from their legendary ancestor, he was the most talented member of the Sun family to be accepted into the sect. He was also the deceased’s second uncle.
+
+Sun Junhao nodded to Master Sun, then bowed to the Wangqing Sect disciples and said, "Thank you, fellow Daoists, for traveling from afar to investigate my nephew’s case. I am deeply grateful."
+
+Ming Ze was slightly stunned upon seeing him and asked in confusion, "Since you are already in the city, why have you not taken action yourself to avenge your kin?"
+
+Sun Junhao gave a bitter laugh. "To be honest, I just came out of seclusion yesterday. After receiving the sad news, I rushed home from Fuhua Sect tonight."
+
+Ming Ze nodded. "I see."
+
+Sun Junhao said, "Have you found anything out?"
+
+For a Nascent Soul cultivator, it was easy to find a person but hard to find a demonseed.
+
+Because a demonseed was controlled by a phantasm, they could completely conceal their qi. In ancient times, it was nearly impossible to hunt down demonseeds. Everyone could only rely on the slightest hints to infer the correct direction to pursue.
+
+Ming Ze tilted his head and pointed to the eastern window, saying, "The bride escaped through this window. Earlier, I used my divine sense to scan the structure of the Sun Manor—escaping from here leads to the back gate, and beyond the gate is a river. The bride likely followed the river. We should split into two groups when the time comes."
+
+Sun Junhao replied, "Okay, thank you for your trouble."
+
+Master Sun left with the old lady.
+
+Madam Sun continued crying with her handkerchief. "It's all my fault. If I had been more careful back then, he wouldn't have died."
+
+Her wails made the elderly lady's head hurt. Old Lady Sun stopped in her steps and slammed her cane into the ground. Looking back to glare at Madam Sun, with blood vessels popping in her eyes, she hissed furiously, "That's enough\! Stop crying\! Let my ears get some peace and quiet\!"
+
+Madam Sun was scared silent. She covered her nose and mouth with her handkerchief and sobbed silently.
+
+Because of Xie Shiyi, Yan Qing didn't dare to mingle with the crowd. Although few people in the entire Wangqing Sect had actually seen Xie Shiyi in person, his unparalleled aura, his aloof and indifferent attitude, as if he stood above all, was too obvious. Yan Qing was afraid of getting beaten.
+
+Thinking of this, Yan Qing couldn't resist laughing a bit.
+
+After Ming Ze finished his instructions, he let them choose the direction they wanted to search.
+
+Yan Qing took a mortal copper coin from his sleeve and said to Xie Shiyi, "Yaoyao, let's make a bet\! Do you guess the bride went upstream or downstream?" Yan Qing flipped the coin and said, "I guess downstream."
+
+Xie Shiyi calmly looked at him and indifferently said, "I don't care where the bride went."
+
+Yan Qing understood the underlying meaning of his words, tucked the copper coin back into his sleeve, and sighed softly. “I got it, stop rushing me. I’m trying to form my Nascent Soul.”
+
+Since he was the one who had boldly suggested this training experience, he took it seriously. With a lazy smile, he said, “One should not ignore small acts of kindness.”
+
+The two of them were the last to leave. They had just stepped out of the Sun Manor's back door when Madam Sun suddenly stopped them. "You two immortal masters, please wait a moment."
+
+Yan Qing had always thought he had an easygoing temper. After all, in his past life as a beggar in Blackwater Alley, if he had relied only on Xie Shiyi, both of them would have starved to death. It was only thanks to Yan Qing's clever sweet-talking—speaking human to humans, speaking demon to demons, swindling everyone to the high heavens—that they survived.
+
+"Madam Sun, is something wrong?" Yan Qing turned around and smiled at her.
+
+Madam Sun had no choice but to summon up her courage to stop these two cultivators. Earlier, these two were always at the edge of the crowd in a shadowy corner, so she couldn't get a good look at them and didn't think much about it.
+
+However, as soon as she spoke, she hadn’t expected one of them to turn around and glance at her with a smile. That one look, with his strikingly handsome features, left her momentarily stunned.
+
+The moonlight was like frost, casting a glow on the young man clad in blue and white robes. His eyes, shaped like delicate peach blossoms, carried a natural charm, and when he smiled, there was an effortless elegance to him. The person beside him hadn’t even paused his steps, only stopping reluctantly when the peach-eyed youth tugged at his sleeve, forcing him to a halt.
+
+Madam Sun felt her heart pounding in both fear and nervousness, but when she thought of the gruesome fate of her son, she couldn’t hold back her tears. Overcome with sorrow, she directly knelt before Yan Qing, bowing her head deeply to the ground. “Immortal masters, it was my own negligence that led to my child's death. Whenever I think about it, I feel utterly lost in my grief. Please, take me with you. I must go with you to find Zhang Mushi.”
+
+Yan Qing twirled the red thread. Although his eyes were curved, he wasn't moved in the least. "Madam Sun, you don't need to shoulder all the blame. Before everything happened, nobody could have known that Miss Zhang was a demonseed."
+
+Madam Sun's tears fell uncontrollably. "Immortal master, there are always signs before the demon seed's phantasm awakens. The disappearance of Miss Zhang Qi from Jiangjin Temple should have been a warning to me, but I failed to take it to heart."
+
+Yan Qing smiled slightly but still refused her. "Madam, you should go back and rest. Demonseeds are extremely vicious. If you follow us, you'll only be a burden."
+
+Madam Sun froze, finally realizing how unreasonable her request had been in her muddled state.
+
+"Yes, the immortal master is right." Her face flushed with embarrassment, and she bowed once more before being helped away by her maid.
+
+TN: LET'S GO\! I'M SICK OF HER ASS\!
+
+[^1]:  浮台, Driftform
+
+[^2]:  忘情, Desireless
+
+[^3]:  清乐, Clearcheer
+
+[^4]:  Idk, some fantasy novel ig
+
+[^5]:  回春, Springturn
+
+[^6]:  南泽, Southluster
+
+[^7]:  Not keeping pinyin for this lmao
+
+[^8]:  浮华, Driftflower
