@@ -11,5 +11,5 @@ Last updated: 2025-02-20
 
 | Chapter |Date posted |
 | --------| -----------|
-| [26]({% link ooc/IRIY/26.md %})    | 3/4/2025      |
-| [27]({% link ooc/IRIY/27.md %})    | 3/4/2025      |
+| [26]({% link IRIY/26.md %})    | 3/4/2025      |
+| [27]({% link IRIY/27.md %})    | 3/4/2025      |
