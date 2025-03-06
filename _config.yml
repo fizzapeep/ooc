@@ -1,2 +1,16 @@
 theme: minima
 baseurl: "/ooc"
+
+markdown: kramdown
+
+collections:
+  chapters:
+    output: true
+    permalink: /novels/:path/
+
+defaults:
+  - scope:
+      path: "_chapters"
+      type: "chapters"
+    values:
+      layout: "chapter"

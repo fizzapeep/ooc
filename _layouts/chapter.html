@@ -1,0 +1,35 @@
+---
+layout: default
+---
+
+<article class="post">
+  <div class="post-content">{{ content }}</div>
+
+  <div style="text-align: center">
+    <nav class="pagination">
+      {% if page.previous %}
+      <a class="prev" href="{{ site.baseurl }}{{ page.previous.url }}"
+        >&larr; Prev</a
+      >
+      {% else %} &larr; Prev {% endif %}
+
+      <span class="divider">|</span>
+
+      {% assign novel_folder = page.path | remove_first: "_chapters/" | split:
+      "/" | first %} {% assign toc_path = "/novels/" | append: novel_folder |
+      append: "/toc/" %}
+      <a class="toc" href="{{ site.baseurl }}{{ toc_path }}">TOC</a>
+
+      <span class="divider">|</span>
+
+      {% if page.next %} {% if page.next.path contains "toc" %}
+      <a class="next" href="https://www.youtube.com/watch?v=MTW4sIL9Dpw"
+        >Next &rarr;</a
+      >
+      {% else %}
+      <a class="next" href="{{ site.baseurl }}{{ page.next.url }}"
+        >Next &rarr;</a
+      >{% endif %} {% endif %}
+    </nav>
+  </div>
+</article>
