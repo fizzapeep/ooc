@@ -3,9 +3,14 @@ title: Home
 layout: default
 ---
 
-# Welcome to OOC Translations!
+# Welcome to OOC Translations
 
-soz for the janky site, will code improvements as i go
+soz for the janky site, will code improvements as i go:
+
+<ul>
+<li>dark mode</li>
+<li>hover over footnotes on desktop</li>
+</ul>
 
 ## Novels List
 

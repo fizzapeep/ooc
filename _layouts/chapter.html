@@ -3,6 +3,34 @@ layout: default
 ---
 
 <article class="post">
+  <div style="text-align: center">
+    <nav class="pagination">
+      {% if page.previous %}
+      <a class="prev" href="{{ site.baseurl }}{{ page.previous.url }}"
+        >&larr; Prev</a
+      >
+      {% else %} &larr; Prev {% endif %}
+
+      <span class="divider">|</span>
+
+      {% assign novel_folder = page.path | remove_first: "_chapters/" | split:
+      "/" | first %} {% assign toc_path = "/novels/" | append: novel_folder |
+      append: "/toc/" %}
+      <a class="toc" href="{{ site.baseurl }}{{ toc_path }}">TOC</a>
+
+      <span class="divider">|</span>
+
+      {% if page.next %} {% if page.next.path contains "toc" %}
+      <a class="next" href="https://www.youtube.com/watch?v=MTW4sIL9Dpw"
+        >Next &rarr;</a
+      >
+      {% else %}
+      <a class="next" href="{{ site.baseurl }}{{ page.next.url }}"
+        >Next &rarr;</a
+      >{% endif %} {% endif %}
+    </nav>
+  </div>
+
   <div class="post-content">{{ content }}</div>
 
   <div style="text-align: center">
@@ -32,4 +60,31 @@ layout: default
       >{% endif %} {% endif %}
     </nav>
   </div>
+
+  <script
+    id="dsq-count-scr"
+    src="//ooctranslations.disqus.com/count.js"
+    async
+  ></script>
+  <div id="disqus_thread"></div>
+  <script>
+    var disqus_config = function () {
+      this.page.url = "{{ site.url }}{{ page.url }}";
+      this.page.identifier = "{{ page.url }}";
+    };
+    (function () {
+      // DON'T EDIT BELOW THIS LINE
+      var d = document,
+        s = d.createElement("script");
+      s.src = "https://ooctranslations.disqus.com/embed.js";
+      s.setAttribute("data-timestamp", +new Date());
+      (d.head || d.body).appendChild(s);
+    })();
+  </script>
+  <noscript
+    >Please enable JavaScript to view the
+    <a href="https://disqus.com/?ref_noscript"
+      >comments powered by Disqus.</a
+    ></noscript
+  >
 </article>

@@ -1,6 +1,8 @@
 theme: minima
 baseurl: "/ooc"
 
+google_analytics: G-MGR2S8P4HV
+
 markdown: kramdown
 
 collections:
