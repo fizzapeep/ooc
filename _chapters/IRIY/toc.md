@@ -40,7 +40,7 @@ Total Word Count: {{ total_word_count }}
     {% if chapter.path contains "IRIY/" %}
     {% unless chapter.path contains "toc" %}
     <tr>
-      <td><a href="{{ site.baseurl }}{{ chapter.url }}#disqus_thread">{{ chapter.title }}</a></td>
+      <td><a href="{{ site.baseurl }}{{ chapter.url }}">{{ chapter.title }}</a></td>
       <td>{{ chapter.content | number_of_words }}</td>
       <td>{{ chapter.last_modified_at | date: "%B %d, %Y" }}</td>
     </tr>
