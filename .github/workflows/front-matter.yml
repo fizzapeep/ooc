@@ -1,0 +1,50 @@
+name: Update front matter
+on:
+  push:
+    branches:
+      - main
+
+jobs:
+  update:
+    runs-on: ubuntu-latest
+    steps:
+      - name: Checkout repository
+        uses: actions/checkout@v3
+        with:
+          fetch-depth: 0
+
+      - name: Update front matter
+        run: |
+          if [ -d "_chapters" ]; then
+            find _chapters -type f -name "*.md" | while read file; do
+              last_modified=$(git log -1 --format="%ad" --date=iso "$file")
+
+              if awk '/^---$/{i++} i==2{exit} END{exit (i!=2)}' "$file"; then
+                # File has front matter, update or insert last_modified_at
+                awk -v date="$last_modified" '
+                BEGIN {inside=0}
+                /^---$/ {inside++; if (inside==2) print "last_modified_at: \"" date "\""}
+                !/^last_modified_at:/ {print}
+                ' "$file" > temp.md && mv temp.md "$file"
+              else
+                # Extract first heading as title
+                title=$(grep -m 1 '^# ' "$file" | sed 's/^# //')
+
+                # If no title found, use filename as fallback
+                [ -z "$title" ] && title="$(basename "$file" .md)"
+
+                # Prepend new front matter
+                {
+                  echo "---"
+                  echo "title: \"$title\""
+                  echo "last_modified_at: \"$last_modified\""
+                  echo "---"
+                  cat "$file"
+                } > temp.md && mv temp.md "$file"
+              fi
+            done
+
+            git config --global user.name "github-actions[bot]"
+            git config --global user.email "github-actions@github.com"
+            git diff --quiet || (git add _chapters && git commit -m "Update front matter" && git push)
+          fi

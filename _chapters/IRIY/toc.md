@@ -4,8 +4,6 @@ title: IRIY
 layout: toc
 permalink: /novels/IRIY/toc/
 ---
-last_modified_at: "2025-03-09 07:50:50 +0000"
-
 # I Returned to the Immortal's Youth
 
 [Novel Updates Page](https://www.novelupdates.com/series/i-returned-to-the-immortals-youth/)
@@ -51,4 +49,3 @@ Total Word Count: {{ total_word_count }}
     {% endfor %}
   </tbody>
 </table>
-
