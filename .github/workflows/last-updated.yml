@@ -1,0 +1,24 @@
+name: Update Last Modified Dates
+on:
+  push:
+    branches:
+      - main
+
+jobs:
+  update:
+    runs-on: ubuntu-latest
+    steps:
+      - uses: actions/checkout@v3
+        with:
+          fetch-depth: 0
+
+      - name: Update last modified dates
+        run: |
+          for file in _chapters/*.md; do
+            last_modified=$(git log -1 --format="%ad" --date=iso "$file")
+            sed -i "s/^last_modified_at: .*/last_modified_at: \"$last_modified\"/" "$file"
+          done
+          git config --global user.name "github-actions[bot]"
+          git config --global user.email "github-actions@github.com"
+          git commit -am "Update last modified dates" || exit 0
+          git push
