@@ -5,6 +5,9 @@ google_analytics: G-MGR2S8P4HV
 
 markdown: kramdown
 
+plugins:
+  - jekyll-last-modified-at
+
 collections:
   chapters:
     output: true
