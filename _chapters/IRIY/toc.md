@@ -1,8 +1,10 @@
 ---
+last_modified_at: "2025-03-09 07:50:50 +0000"
 title: IRIY
 layout: toc
 permalink: /novels/IRIY/toc/
 ---
+last_modified_at: "2025-03-09 07:50:50 +0000"
 
 # I Returned to the Immortal's Youth
 
@@ -50,4 +52,3 @@ Total Word Count: {{ total_word_count }}
   </tbody>
 </table>
 
-last_modified_at: "2025-03-06 02:18:16 -0800"
