@@ -19,12 +19,26 @@ jobs:
             find _chapters -type f -name "*.md" | while read file; do
               last_modified=$(git log -1 --format="%ad" --date=iso "$file")
 
-              # Check if last_modified_at exists and update it
-              if grep -q "^last_modified_at:" "$file"; then
-                sed -i "s/^last_modified_at: .*/last_modified_at: \"$last_modified\"/" "$file"
-              else
-                echo -e "\nlast_modified_at: \"$last_modified\"" >> "$file"
-              fi
+              if awk '/^---$/{i++} i==2{exit} END{exit (i!=2)}' "$file"; then
+              # File has front matter, update or insert last_modified_at
+              sed -i "/^last_modified_at:/d" "$file"
+              sed -i "/^---$/a last_modified_at: \"$last_modified\"" "$file"
+            else
+              # Extract first heading as title
+              title=$(grep -m 1 '^# ' "$file" | sed 's/^# //')
+
+              # If no title found, use filename as fallback
+              [ -z "$title" ] && title="$(basename "$file" .md)"
+
+              # Prepend new front matter
+              {
+                echo "---"
+                echo "title: \"$title\""
+                echo "last_modified_at: \"$last_modified\""
+                echo "---"
+                cat "$file"
+              } > temp.md && mv temp.md "$file"
+            fi
             done
 
             git config --global user.name "github-actions[bot]"
