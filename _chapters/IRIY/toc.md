@@ -2,7 +2,7 @@
 title: IRIY
 layout: toc
 permalink: /novels/IRIY/toc/
-last_modified_at: "2025-03-09 08:05:10 +0000"
+last_modified_at: "2025-03-09 08:07:05 +0000"
 ---
 # I Returned to the Immortal's Youth
 
