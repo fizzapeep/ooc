@@ -42,7 +42,7 @@ Total Word Count: {{ total_word_count }}
     <tr>
       <td><a href="{{ site.baseurl }}{{ chapter.url }}">{{ chapter.title }}</a></td>
       <td>{{ chapter.content | number_of_words }}</td>
-      <td>{{ chapter.last_modified_at | date: "%B %d, %Y" }}</td>
+      <td>{{ chapter.created_at | date: "%B %d, %Y" }}</td>
     </tr>
     {% endunless %}
     {% endif %}

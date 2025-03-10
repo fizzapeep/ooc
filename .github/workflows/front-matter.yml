@@ -11,20 +11,24 @@ jobs:
       - name: Checkout repository
         uses: actions/checkout@v3
         with:
-          fetch-depth: 0
+          fetch-depth: 0 # Ensure full history is available
 
       - name: Update front matter
         run: |
           if [ -d "_chapters" ]; then
             find _chapters -type f -name "*.md" | while read file; do
-              last_modified=$(git log -1 --format="%ad" --date=iso "$file")
+              created_at=$(git log --diff-filter=A --format="%ad" --date=iso -- "$file" | tail -n 1)
+
+              if [ -z "$created_at" ]; then
+                created_at="Unknown"  # Fallback if creation date can't be determined
+              fi
 
               if awk '/^---$/{i++} i==2{exit} END{exit (i!=2)}' "$file"; then
-                # File has front matter, update or insert last_modified_at
-                awk -v date="$last_modified" '
+                # File has front matter, update or insert created_at
+                awk -v date="$created_at" '
                 BEGIN {inside=0}
-                /^---$/ {inside++; if (inside==2) print "last_modified_at: \"" date "\""}
-                !/^last_modified_at:/ {print}
+                /^---$/ {inside++; if (inside==2) print "created_at: \"" date "\""}
+                !/^created_at:/ {print}
                 ' "$file" > temp.md && mv temp.md "$file"
               else
                 # Extract first heading as title
@@ -37,7 +41,7 @@ jobs:
                 {
                   echo "---"
                   echo "title: \"$title\""
-                  echo "last_modified_at: \"$last_modified\""
+                  echo "created_at: \"$created_at\""
                   echo "---"
                   cat "$file"
                 } > temp.md && mv temp.md "$file"
