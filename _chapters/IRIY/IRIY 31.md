@@ -1,3 +1,7 @@
+---
+title: "Chapter 31: Futai (7)"
+created_at: "2025-04-08 20:28:58 -0700"
+---
 # Chapter 31: Futai (7)
 
 "Take my clothes off?" Yan Qing froze, blinked in bewilderment, then asked whatever came to his mind, "Yaoyao, why would I need to take my clothes off to form my Nascent Soul?"
