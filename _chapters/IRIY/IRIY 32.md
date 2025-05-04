@@ -1,3 +1,7 @@
+---
+title: "Chapter 32: Futai (8)"
+created_at: "2025-05-03 18:29:48 -0700"
+---
 # Chapter 32: Futai (8)
 
 Yan Qing's heart was full of doubts. Why would Xie Shiyi come to the Demon Realm? Moreover, why would he emerge from the Cave of Ten Thousand Ghosts?
