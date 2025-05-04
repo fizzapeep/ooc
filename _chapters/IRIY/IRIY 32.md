@@ -1,0 +1,307 @@
+# Chapter 32: Futai (8)
+
+Yan Qing's heart was full of doubts. Why would Xie Shiyi come to the Demon Realm? Moreover, why would he emerge from the Cave of Ten Thousand Ghosts?
+
+However, before his questions could be answered, he had already been shocked stupid by Xie Shiyi's words.
+
+—Take me back.
+
+Take him back??? Take him back where???
+
+Shifang City's inscrutable Young City Lord had a rare moment of bafflement. His delicate, beautiful peach blossom eyes shot up.
+
+Yan Qing's clear, discerning black pupils, which always carried a smile, fogged up and revealed genuine astonishment.
+
+The sword technique Xie Shiyi just performed earlier was perhaps just a show for the other people in the Demon Realm. It appeared icily cruel and indomitably murderous, yet the instant it approached him, in a place where no others could see, it shattered into myriad starry fragments. It hadn't harmed a hair on his head.
+
+His hands hung from Yan Qing's shoulders as he leaned over, his breath landing next to Yan Qing's earlobe. Xie Shiyi's fine eyelashes seemed to be dyed with frost that never melted, yet his breath was warm, and his tone was clear and tranquil as he said, "Take me back to your place. You're in danger right now."
+
+After Yan Qing's shock receded, his facade of good mood and good humour returned in a flash, but inwardly, he gritted his teeth.
+
+It had already been a hundred years since their separation at the Land of Fallen Gods.
+
+Yet their reunion was merely like a chance encounter, effortlessly stirring up the rawest emotions between them.
+
+Yan Qing, after hearing him speak, unconsciously wanted to retort, "How dangerous could it be?"
+
+But the words rushing up suddenly stopped at his mouth…they were too rash and too frivolous.
+
+Upon seeing this, the old eunuch was stunned silly. His eyeballs rolled in his head, and he immediately picked up his horsetail whisk and sharply scolded, "Let go\! Are you tired of living? How brazen, to think you'd have the impertinence to disrespect our Young City Lord like this\!"
+
+When Xie Shiyi hastily shattered the Buhui Sword, he suffered a severe backlash and was heavily injured. Yan Qing could sense that his spiritual energy was extremely chaotic at the moment. Upon hearing the old eunuch's insidious words, a thread of killing intent flickered in Yan Qing's eyes. 
+
+He slowly raised his hand and lightly rested it upon Xie Shiyi's shoulder. His jade-white fingers fondled a strand of Xie Shiyi's hair, and he smugly lifted his chin with a drawn-out hook of his lips. With a languid smile and a volume that everyone present could hear, he said, "I was wondering why I felt my right eye twitch when I left the Red Lotus Pavilion today. It turns out the heavens sent me a fated marriage."
+
+"..."
+
+The hundreds of common people dressed like beautiful flowers inside Shifang City were struck with alarm. Fuck, their Young City Lord was out snatching up innocent men again.
+
+"..." The City Lords standing outside Shifang City wore expressions of horror. Yan Qing's death-defying audacity petrified them.
+
+That sword cultivator with the snow-white robes had obviously descended from Upper Heaven. With his Soul Transformation stage cultivation, it wouldn't even be a stretch to assume that he was a Sect Master. His status was venerable, and his temper was cold. How could he possibly tolerate Yan Qing humiliating him like this???
+
+Yan Qing was all smiles. With one hand tugging at Xie Shiyi's hair, he leaned in and sensually said, "Beauty, you truly are nice to look at. How about you come back to the Red Lotus Pavilion with me?"
+
+Xie Shiyi's entire body stiffened for a second, and then he backed away and raised his head to observe him apathetically. His eyelashes were long, and his eyes were like glass marbles dipped in a cold stream. When they fixed their gaze on someone, there seemed to be a faint purple hue glowing in their darkness. Like falling snow, like shattered jade.
+
+If the Nine Sects' elder of Upper Heaven's Xiaoyu Palace heard these irreverent words from Yan Qing to Xie Shiyi, he probably would have fainted in fright…
+
+Everyone held their breath with rapt attention, waiting to see how this intruder who had charged into Shifang City like a torrent to plant himself in their Young City Lord's hands would respond.
+
+Yan Qing saw him remain silent, and the childish desire from his youth to goad Xie Shiyi into displeasure reared its ugly head. "Beauty, say something, are you willing?"
+
+This ill-spirited teasing carried a silent call to "Yaoyao."
+
+Yaoyao, are you willing?
+
+Xie Shiyi's face seemed to pale, and his pupils contracted slightly. His lashes quivered, and a trail of blood seeped out from the corner of his mouth, but it was quickly wiped off, leaving a faint smear of bright red on his lip. With the calmness of a serene cloud and a light breeze, he averted his gaze and said nothing.
+
+Yet in the eyes of others, he looked as if he was enduring some unbearable humiliation and unwilling to put up with Yan Qing.
+
+Unfortunately, this crowd of pessimists already foresaw the conclusion to this kind of silent, weak resistance.
+
+The old eunuch put on an act of being worried sick. He came over to Yan Qing and asked with fake concern, "Young City Lord, are you alright? This old slave was truly almost scared to death just now." He then turned towards Xie Shiyi and glowered at him with his eyes wide open, full of fury and wariness. "Young City Lord, this person's arrival is ill-fated, and moreover, his cultivation is profound\! According to this old slave, we should take advantage of now, when he's weakened, to lock him in the Serpent Prison\! I don't dare imagine the consequences if we spare him\!"
+
+Yan Qing slowly retracted his hand and cast a glance over to the old eunuch, lightly replying, "Eunuch Qi, you're being quite rude to this beauty with these words of yours."
+
+"I don't want to lock him up in the Serpent Prison, I want to lock him up in the Red Lotus Pavilion." The old eunuch: "?"
+
+The Red Lotus Pavilion, unceasingly lit by ghostly fires from bone lanterns night after night, was welcoming a guest for the first time.
+
+After the Demon Realm's Hundred Cities’ Pilgrimage, all the various City Lords were to reside in Shifang City for a period of time.
+
+The City Lord of Shifang City, Huai Mingzi, was in seclusion, so currently all responsibilities fell upon the shoulders of the Young City Lord, Yan Qing.
+
+But Yan Qing was completely unreliable, too lazy to even pretend to extend the most basic courtesy to the visitors.
+
+The only thing in his sights was the ice-cold beauty at his side. His eyes didn't even blink.
+
+This kind of lustful, greedy gaze filled the Demon Realm's City Lords with unspeakable anger.
+
+They stood and toasted to Yan Qing. While Huai Mingzi was in seclusion, each person harbored their own sinister designs, and their words to Yan Qing likewise carried dark implications, sowing disharmony with each sentence. First, they expressed sincerity, then they expressed regret. It was as if they were itching to rise in rebellion at once to slay Huai Mingzi, using Yan Qing as a figurehead.
+
+If it were the Yan Qing of the past, he might've staged a whole show of feigning to listen, but right now, he didn't really want to acknowledge this group of people.
+
+He was chatting with Xie Shiyi.
+
+Their cultivation was on another level from everyone else, and after their concealment, everyone else could only see the slight movements of their lips, but not what they were saying.
+
+Yan Qing asked, "You came alone?"
+
+Xie Shiyi said, "En."
+
+Yan Qing again asked, "Why? And what do you mean I'm in danger? Xie Shiyi, between the two of us, it seems you're the one in greater danger."
+
+Xie Shiyi gave him a look and didn't say anything.
+
+Undeterred, Yan Qing asked yet again, "Did you only come to Shifang City because you were concerned for my safety?"
+
+Xie Shiyi dropped his eyes to look at the wine in his cup, his crow-black hair like satin, his expression half visible, half obscured.
+
+After a long while, Yan Qing heard a familiar scoff. He asked, "What do you think?"
+
+He really was too familiar with this scoff. It was cold and full of ridicule.
+
+Yan Qing fiddled with his folding fan and gave an eccentric laugh. "I'll say, beauty, shouldn't you take stock of your current situation?"
+
+Xie Shiyi said, "I came to kill Huai Mingzi."
+
+Yan Qing, upon hearing this, blinked, and curiously said, "Why do you suddenly want to kill Huai Mingzi? The Upper Heaven and Lower Heaven are separated by an entire mortal realm. For countless years, the two realms have minded their own business. In all my years as Young City Lord, you're the first to slaughter your way to my gates." 
+
+Xie Shiyi didn't answer, and only asked, "Do you want to kill him?"
+
+Yan Qing froze. He said, "I do."
+
+Xie Shiyi said, "En."
+
+Yan Qing angrily scoffed, "Just 'en'? Xie Shiyi, I'll have a very hard time cooperating with you if you keep up this attitude of yours."
+
+Xie Shiyi looked up at him. "What do you want me to say?"
+
+Yan Qing hooked a wine goblet with his finger, red thread trailing down, revealing a slender, white wrist. With a smirk, he said, "What do you think? With your current status, don't you know how you should address me?"
+
+Xie Shiyi imperceptibly furrowed his brows.
+
+Yan Qing dissolved the barrier, turned his head, and called, "Eunuch Qi, come over here."
+
+The old eunuch had been clutching his horsetail whisk, intently watching them from a dark corner like a viper waiting for a chance to strike. When he suddenly heard Yan Qing call for him, he jumped in fright. He immediately straightened up and walked forward, quietly asking, "Does the Young City Lord have a command?"
+
+Yan Qing smiled and said, "I see you're quite proficient in instructing people. Come, teach your Young City Lord's future Madam, according to custom, how he should speak."
+
+His future—the Young City Lord's future Madam\!?
+
+It wasn't just the old eunuch. Everyone in the palace was stupefied. They had never seen anything so preposterous in their life\! This person was obviously a respected figure of the Upper Heaven, Yan Qing kidnapped him with such lustful intentions. If they didn't kill him now and nip this in the bud, then later on they would all be implicated as well\!
+
+"Young City Lord…" Some people stood up. But with just an icy glare from Yan Qing, they stiffly swallowed back their words.
+
+The wrinkle of anger etched by Yan Qing onto the old eunuch's face from this morning grew even deeper now.
+
+Yan Qing, full of high spirits, said, "Eunuch Qi, why are you suddenly mute? Aren't you the one always diligently trying to stuff someone by my side? Now that I finally have someone beside me, why don't you teach him some methods to please me?"
+
+The old eunuch: "..."
+
+The other City Lords: "..."
+
+They all looked at that cold cultivator who was in dire straits and being humiliated like this. His snow-white robes silently rested around him as he watched everything with apathetic eyes.
+
+Eunuch Qi didn't dare act recklessly like Yan Qing. Although he didn't know what setbacks Xie Shiyi experienced that allowed Yan Qing to suppress him and take him back to Shifang City, he knew he couldn't carelessly insult Xie Shiyi, with his unstoppable apical Soul Transformation cultivation. Horsetail whisk in hand, he sputtered for half a day before awkwardly saying, "Young City Lord, in all these years, Shifang City has never had a Madam City Lord. This old slave also doesn't know what customs apply to the Young Madam."
+
+Yan Qing: "..." This old eunuch was really useless at everything, but when it came to undermining him and making things difficult for him, he was unbeatable.
+
+Xie Shiyi seemed to smile slightly upon hearing this. But when everyone looked over, that smile scattered like a cold mist.
+
+Yan Qing magnanimously said, "If there aren't any customs, then I'll establish them. Among common folk, how do wives, oh wait, I mean concubines, address the master of the household?"
+
+Eunuch Qi: "..."
+
+Eunuch Qi: "Replying to Young City Lord, normally…they address them as husband."
+
+Yan Qing: "And how do they usually serve the masters of their households?"
+
+Eunuch Qi: "...they pour tea for them, help them dress and style their hair, and take care of matters both big and small. Of course, the most important thing is they must serve the masters of their households well in bed."
+
+Yan Qing choked.
+
+He opened his folding fan to cover up his momentarily stiffened expression, which eased in a flash. Then, he cheerily looked at Xie Shiyi and said, "Madam, did you get all of that?"
+
+Lanterns filled the hall, and the red lotuses were dazzlingly bright. Every person turned to look at the white-robed person sitting above them, who had yet to utter a word.
+
+Yan Qing sat beside him and unblinkingly stared at Xie Shiyi's frigid expression; the more he stared, the more riled up he got. Raising the wine cup in his hand, he remembered that Xie Shiyi didn't like wine, and he became even more excited. His peach blossom eyes curved, and the smile held in his lips became increasingly mischievous. He naturally handed the cup over and said, "Come, madam, drink."
+
+The people of Shifang City simply couldn't bear to watch.
+
+—What's this called? The favored one of heaven falling into the hands of a demon and suffering endless torment and humiliation? They only knew that Yan Qing was capricious. They never imagined his methods of torture were so numerous and varied\!
+
+Xie Shiyi dropped his gaze and looked at the wine in the cup.
+
+The jasper cup was translucent, and the liquid's surface was clear. The wine reflected the brilliant candle flames surrounding them, and also reflected Yan Qing's pitch-black, smiling, crafty eyes.
+
+He slightly smiled, and his hand reached out from his snow white sleeves. He slowly received the cup, drained it in one go, and nonchalantly said, "Alright, husband."
+
+Yan Qing: "?"
+
+"..."
+
+That night was, without a doubt, the quietest night in all of Shifang City.
+
+"Husband, husband, hahaha—" The hallway was illuminated with the ghostly fires from bone lanterns. Only the two of them remained, and the more Yan Qing thought about it, the funnier it got. They had been excessively well acquainted in their youth, so when it was just the two of them, it was as if there had never been any misunderstandings between them at all. Yan Qing said, "Not bad, now all of Shifang City knows my Red Lotus Pavilion has a master."
+
+Xie Shiyi heard this and looked at him. "Has there been anyone in here before?"
+
+Yan Qing felt that just thinking about that old eunuch gave him bad luck. Unconcernedly, he said, "This morning, a whole row of beauties was kneeling on the very floor you're walking on."
+
+Xie Shiyi was silent for a moment. From his tone, it was impossible to detect happiness or anger. "Then your luck with women isn't bad."
+
+Yan Qing said, "Please, that's enough. I don't dare enjoy that kind of luck."
+
+The entire Red Lotus Pavilion was filled with Huai Mingzi's spies, and killing intent surrounded them from all directions. Yet, Yan Qing had set down a large formation around his bedroom only, blocking out all pests and beasts. The instant he stepped into his bedroom, Yan Qing's body that was as tense as a bow string finally relaxed, and he let out a yawn.
+
+Someone with Soul Transformation stage cultivation didn't need to sleep, but Yan Qing's seven immortal and six mortal souls were unstable, and had been further irritated by brief contact with the Cave of Ten Thousand Ghosts. Sometimes, out of habit, he would take a nap, like now. He was quite weary after concluding the Hundred Cities’ Pilgrimage.
+
+The crown on his hair was the one he had hastily placed on himself this morning while on the go, and it was all askew and tangled. It looked fine from afar, but up close, one could see that the surrounding hair was as messy as a bird's nest. 
+
+Yan Qing stood before the mirror and set about removing the crown. In a moment of carelessness, he tore out a few strands of hair and immediately gasped in distress. 
+
+He placed his folding fan on the table and spoke. 
+
+"Huai Mingzi is in seclusion, and even I don't know what he's scheming. But that old coot has been at the apex of the Soul Transformation stage for many years now. It's going to be very difficult for us to deal with him."
+
+Xie Shiyi said, "En."
+
+Yan Qing sat down in front of the mirror and continued, "After leaving the Land of Fallen Gods, you went to Wangqing Sect?"
+
+Xie Shiyi said, "En."
+
+Upon mention of their parting, the two were silent again for a moment. Yan Qing's fingers fell onto the table.
+
+This mirror he set up in the palace obviously wasn't for admiring his appearance, but more importantly, for surveillance. This mirror could reflect in all directions and record the happenings of every nook and cranny of the palace.
+
+Yan Qing lowered his head and slowly untied the Zhinu Thread around his fingers. The long read thread swept across the floor like the hem of a robe. Outside the window near the desk was a lotus pond, and at night, the ghostly fires from the lotus lanterns wouldn't extinguish. The scorchingly crimson lotuses covered the lake's surface, which rippled with moonlight. 
+
+The wind softly blew past the nine-bend winding corridor laden with skulls, which clattered against each other. The bones had deteriorated after being dried by the sun for a long time, and when they clinked together, they truly did seem to give off a similar crisp sound of little bells.
+
+Yan Qing stilled, and with a sudden tug of the string in his hand, he was suddenly all smiles as he asked, "Xie Shiyi, listen, don't you think this sound is familiar?"
+
+Xie Shiyi really did listen seriously for a bit, and soon after, coolly answered, "It's not familiar."
+
+Yan Qing rolled his eyes. "Wow, you really have no imagination." He wound up the Zhinu Thread, but unexpectedly, he didn't control his strength, and ended up cutting his fingers.
+
+"?" Yan Qing blinked and stared at the red smear. 
+
+He sighed and thought, at least he didn't pull out more hair.
+
+Xie Shiyi saw this and walked over, nonchalantly asking, "Are you usually this unguarded in Shifang City?"
+
+Yan Qing sneered. "How can you, the person who dared to single-handedly attack Shifang City, ask me this question?"
+
+Xie Shiyi was silent. He looked down and said, "I'll untie it for you."
+
+The Zhinu Thread was a celestial artifact, and the wounds it left behind couldn't be neglected, even by a Soul Transformation stage cultivator.
+
+Yan Qing felt something was off, and strangely said, "No thanks, how could I trouble you with this?"
+
+Before the mirror next to the window, Xie Shiyi slightly leaned over, and his ice-cold hands grazed the thread on Yan Qing's fingers. Calmly, he said, "I'm to take care of matters both big and small. Isn't that right, husband?"
+
+Yan Qing: "..."
+
+Why was he the one being embarrassed by the words that were supposed to humiliate Xie Shiyi?
+
+The Zhinu Thread had its own consciousness, and Xie Shiyi's presence was overly threatening. The instant he made contact with the godly silk, the Zhinu Thread's phantom shrieked malevolently, and the section dyed with Yan Qing's blood streaked directly toward Xie Shiyi's eyeball in attack. After the spirit silk entered one's spiritual consciousness through the eyes, they were doomed. Yan Qing hastily snatched the thread back in panic, but the residual blood on the red string still splashed onto Xie Shiyi's eyelashes.
+
+Yan Qing's heart pounded. "Are you alright?"
+
+Xie Shiyi was reserved with his emotions, and his lips pursed with an unclear meaning. He said,  "I'm fine. My eyes are just going blind, that's all."
+
+Yan Qing guiltily said, "Hah, that can't be, the spirit silk didn't enter your eyes. They'll be fine after I help you wipe the blood off."
+
+He reached out to touch Xie Shiyi's eyelashes. 
+
+At first, it was a very casual movement, but Xie Shiyi's eyelashes shuddered, tickling his fingertips. Yan Qing's entire person froze, as if he had been shocked.
+
+For a moment, it was silent.
+
+Actually, he truly thought the skulls clanking together outside sounded like the chimes of little bells, just like the ones under the eaves of the Ascension Pavilion from when they were fifteen. Ding-ling, ding-ling, they undulated like human emotions.
+
+"Xie Shiyi, don't you think this act is familiar?" Yan Qing suddenly spoke. "First, we drank, then I wiped your eyes. Isn't it similar to the End-of-Class Banquet at the Ascension Pavilion that night?"
+
+Xie Shiyi said nothing.
+
+"At that time, I used wind, and the rain-soaked flowers and leaves all fell upon your face. I remember I even asked you a question then." Yan Qing thought of this and couldn't help but laugh. "Should I curse you for jinxing us or congratulate us for both having our dreams come true? We really did become strangers to each other."
+
+As Xie Shiyi allowed his fingers to flick off the blood on his eyelashes, unseen by anybody, his body stiffened, as if ice condensed in his bloodstream. 
+
+Yan Qing, speaking whatever was on his mind, said, "But I also jinxed us as well. Can you guess what I said to that eunuch this morning? He asked me what kind of beauty would be able to catch my eye, and I answered that they would have to be a beauty who came from the Cave of Ten Thousand Ghosts."
+
+Xie Shiyi, upon hearing this, finally smiled.
+
+Yan Qing recalled how Xie Shiyi snapped the neck of Chi City's City Lord, the scene of him parting the curtain of green fog and treading over the bones of the deceased as he emerged from the Cave of Ten Thousand Ghosts. A strange silence descended upon them, and he decided to omit the part where he told the old eunuch about having a "heaven-fated marriage".
+
+Yan Qing said, "But I should be called a prophet instead. It sounds better than being called a jinxer."
+
+Xie Shiyi said, "Then, prophet, have you prophesied your own ending?"
+
+Yan Qing: "En?"
+
+Xie Shiyi finished untying the rest of the string around his wound and said, "What prophet nonsense. If this were truly a heaven-fated marriage, your right eye wouldn't be twitching.
+
+Yan Qing froze, before realizing that Xie Shiyi was referring to the thoughtless drivel he had spouted in front of him earlier.
+
+He even forgot what he had said, but surprisingly, Xie Shiyi still remembered. Considering this peerless beauty's aloof, disagreeable temper, he had assumed all of his teasing would go in one ear and out the other.
+
+Xie Shiyi said, "It's bad luck for the right eye to twitch."
+
+Yan Qing said without thinking, "Haven't you ever heard of an ill-fated relationship?"
+
+Xie Shiyi raised his head and stilled for a moment before suddenly breaking out in laughter.
+
+He actually rarely laughed. Alienation and rejection were written into his every expression and every gesture. Even if he were to laugh, it was usually very light, quiet, and indifferent. It wouldn't be overly complicated, yet neither would it be overly pure. It carried a frigidity and danger unique to Xie Shiyi.
+
+But today's laughter rippled through the depths of his eyes, melting the snow that had accumulated over countless years without thawing. Under the candlelight, Yan Qing unexpectedly sensed the illusion of tenderness as well.
+
+Xie Shiyi softly asked, "Yan Qing, what is an ill-fated relationship?"
+
+Yan Qing said, "Bad karma, I guess. Regardless, it just brings nothing but trouble."
+
+Xie Shiyi's face was pale, yet his lips were rosy. He laughed softly and said with unclear implications, "It seems you truly are a prophet."
+
+*TN: prophet? ORV mentioned??? these two do give off joongdok vibes for me hehehe. anyways take a shot every time the author unnecessarily and redundantly waxes poetic about physical appearances X0*  
