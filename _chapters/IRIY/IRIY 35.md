@@ -1,0 +1,333 @@
+# Chapter 35: Qingyun (1)
+
+Heng Bai was a Great Ascension cultivator, but he was forcibly angered by Yan Qing into becoming a few hundred years younger. But his skin was naturally pale with a young and tender appearance, and the heavens blessed him with a round face like an infant, so even if he mixed into a group of Golden Core or Nascent Soul disciples, he would fit right in.
+
+Yan Qing sat inside the pavilion and watched the disciples outside comparing notes, and asked Heng Bai in high spirits, "Elder Heng Bai, how do you guys determine who gets to compete in the Qingyun Conference?"
+
+Heng Bai rolled his eyes and said, "If you want to sign up, just hand your token over to the leading elder in charge of the Qingyun Conference. Someone like you, who has to rely on chugging elixirs just to form a Nascent Soul, should really save yourself the embarrassment."
+
+Yan Qing insisted on defending his honor, saying, "No, I want to bring glory to the sect."
+
+Heng Bai nearly choked to death because of him. "Wangqing Sect doesn't need your glory, it'll be good enough if you don't lose face."
+
+Yan Qing lowered his head and pulled out his token from his sleeve, and eagerly said, "Elder Heng Bai, which elder do I need to hand my token over to?"
+
+Heng Bai gave another eye roll. "Give it to Tian Shu, from now on, go bother him for every stupid thing instead."
+
+This peak-renowned people pleasing elder of Wangqing Sect had practically taken on all the sect's trifling affairs.
+
+Faced with Yan Qing's young and reckless attitude, like a newborn calf unafraid of a tiger, Heng Bai was so disdainful his teeth ached. But after thinking it over for a while, he ultimately decided he shouldn't allow Yan Qing to act out of rashness and ignorance. He wisely inquired, "Do you even know the kind of people your opponents will be?"
+
+*What a great question*, Yan Qing thought.
+
+Although he was in the Upper Heaven, besides Fuhua and Liuguang, he didn't know the names of any other sect.
+
+Heng Bai's irritation was renewed upon seeing Yan Qing's cluelessness. He grit his teeth and began explaining as if to a five-year-old, "The Nine Great Sects of Nanze Province are divided into two groups, with the former being stronger and the latter being weaker. The first four sects are Wangqing Sect, Shangyang Sect, Fuhua Sect, and Liuguang Sect. The latter five sects are Yushou Sect, Lingyao Valley, Foxiang Temple, Zhanxing Tower, and Hehuan Sect[^1]."
+
+Yan Qing's attention was completely drawn to the last one, and his brows shot up. "Hehuan Sect?"
+
+Heng Bai was so hopping mad he could drop dead, and darkly said, "That's right, Hehuan Sect, what are you thinking of? Since Hehuan Sect is one of the Nine Great Sects, then that technique is of course orthodox, and takes into careful account the harmonies of yin and yang, as well as mutual consent."
+
+Yan Qing felt extremely wrongfully accused. "What did you think I was thinking of?"
+
+Heng Bai coldly laughed. "Whatever it was, it definitely wasn't anything decent."
+
+Yan Qing couldn't hold in his laughter, and seriously said, "You're wrong, Elder Heng Bai, nobody under the heavens is a more decent person than me." At the time when he lived in the Red Lotus Pavilion, he was truly submerged in an endless flower meadow yet wouldn't let a single petal touch his body. He cut off emotion and severed love, perfectly ascetic. Although he had a bad reputation to outsiders, Eunuch Qi knew just how pure and clean he was. 
+
+Heng Bai ignored him, simply reiterating his reminder, "Although your cultivation has reached the Nascent Soul stage, you haven't experienced a real combat, and you also haven't gained outside experience. You carry no talismans on your body to rely on, and you don't even know what path to take with your cultivation techniques. Are you sure you want to participate in the Qingyun Conference?"
+
+Yan Qing was quite flabbergasted. "Your great and mighty Wangqing Sect can't even afford to prepare some talismans for their disciples?"
+
+Heng Bai: "?"
+
+Yan Qing continued to be flabbergasted. "I even have to find my own cultivation techniques, you guys aren't going to give them to me?" 
+
+Heng Bai: "..."
+
+Just how shameless did one have to be to be able to speak these kinds of words?
+
+Heng Bai was so enraged at Yan Qing's audacity and matter-of-factness he nearly had a heart attack. He was unable to continue the conversation, furiously leaving with a flick of his sleeves.
+
+After angering Elder Heng into leaving, Yan Qing sat alone and played with his token.
+
+When he descended the mountain for his training experience, he was concerned that Budezhi[^2] would come out and cause trouble, so he created a mustard seed space within his sleeve for the bird to settle down within.
+
+Yan Qing sent out a thread of spiritual consciousness inside, and discovered that Budezhi had busied itself in the meantime, yielding surprisingly good results.
+
+It had set up its nest in the center of a pile of spirit stones, and conveniently moved a bunch of twigs around it as decoration. Every day it opened his eyes with satisfaction of waking up atop a mountain of gold.
+
+"Budezhi." Yan Qing called out for it.
+
+Budezhi, who was so euphoric it almost took flight, twitched its ears, and said with extreme impatience, "What?"
+
+Yan Qing hook his lips in a smile and said, "Come out, I'm bringing you to the Qingyun Conference to show off my skills." This was the boast he had personally said to Xie Shiyi back then, so he definitely couldn't end up slapping his own face.
+
+Budezhi immediately felt something was wrong—it had fallen into the pits dug by Yan Qing too many times. It abruptly hugged the largest spirit stone, refusing to part with it, and would rather die than come out. "No, this lord refuses\!"
+
+Yan Qing shunned his ignorance of the world, saying, "Set your sights farther. If I claim first place in the Qingyun Conference, the amount of spirit stones received could roughly fill this crappy place of yours to the brim."
+
+"?" With a rustle, Budezhi suddenly stretched its head out.
+
+It refused to transform into a parrot even if it was a matter of life or death, and kept its pointy-eared, red-eyed, bony-winged, ugly-as-shit appearance. Its eyes were wide as it asked, "Really?"
+
+Yan Qing replied, "Really."
+
+Budezhi instantly crawled out from the mustard seed space, shook out its wings, and flew to perch atop Yan Qing's shoulder. Full of self-confidence, it said, "Alright then, this lord will trust you this time for now."
+
+It looked at Yan Qing again.
+
+Budezhi didn't really have much of an understanding of humans cultivation, and merely sensed that Yan Qing seemed to be a bit more powerful. It blinked its eyes and grew even more self-assured. "Oho, no wonder back at the prison you used such a despicable technique to form a contract with me. It turns out that you were planning this all along\! I'm dying of laughter, as expected, a blood contract with this lord can be a cultivation magnifier\!"
+
+Yan Qing suspected it really would die of laughter in the future. He smirked and said, "If I wasn't unable to give you away, I'd give you to your fated master right this moment." One stubbornly insisted he formed his Nascent Soul relying on elixirs, the other smugly thought he formed his Nascent Soul relying on itself. Truly a match made in heaven.
+
+Budezhi: "Who?"
+
+Yan Qing: "Wangqing Sect's malicious maidservant."
+
+Budezhi muttered, "What fucking nonsense is this?[^3]"
+
+Yan Qing thought Budezhi's accent was utterly atrocious.
+
+It hadn't picked up a damn in Liuxian Continent[^4] besides learning how to cuss people out.
+
+"Yan-xiong." Just as Yan Qing was pondering how he was going to ship Budezhi off to Yushou Sect and have them figure out what exactly it was. A crisp, bashful youth's voice interrupted his train of thought.
+
+Yan Qing turned his head back, and saw Ming Ze, sword in hand, standing beneath the mottled shade of the bamboo forest, looking at him with a slightly uneasy, nervous gaze.
+
+Yan Qing said, "Fellow Daoist Ming."
+
+Ming Ze had originally met Yan Qing outside of Yuqing Peak, and had long known about his relationship with Xie Shiyi. On the day of the incident at the Sun Manor, he tactfully hadn't asked about it. He could only play with his hair in embarrassment and say, "Yan-xiong, I'm about to go down the mountain to Nan City to buy some talisman paper in a bit, would you like to—Yan-xiong, you've formed your Nascent Soul?\!" As he was speaking, he noticed something was off, his pupils suddenly contracted, and he cried out.
+
+Yan Qing said, "Yup."
+
+Ming Ze had let his astonishment slip, but luckily he had long viewed Yan Qing through rose-colored glasses, so he accepted this easily and happily said, "Yan-xiong, then will you be participating in the Qingyun Conference this time?"
+
+Yan Qing said, "En."
+
+Ming Ze's eyes lit up. "That's great\!"
+
+After knowing about this, Ming Ze promptly became like a little sparrow who had opened its mouth, spewing words like firecrackers trying to persuade him to go down the mountain at all costs.
+
+Nan City was Nanze Province's largest market and trading center. All kinds of elixirs, talismans, and weapons from shady origins would be sold within. Disciples of the Nine Great Sects wanted for nothing, and they merely visited Nan City to test their luck, that was all. There was always the chance that they might encounter some heaven-sent treasure that happened to suit their individual cultivation techniques extremely well.
+
+Besides the previous mission assigned by the sect, Yan Qing hadn't visited any other places in Nanze Province, so he was immediately on the same page as Ming Ze.
+
+Yan Qing had no interest in Futai Study Hall's intra-sect sparring contest, but unfortunately Heng Bai held a petty grudge against him, selecting his name and calling him to the stage.
+
+Heng Bai sat in the pavilion across from him, casually drew a inscribed bamboo stick, and icily said, "Yan Qing, go spar a match with Sun Xu."
+
+The other disciple whose name had been called, Sun Xu, was from the Dijie[^5] Study Hall.
+
+His cultivation was already at the apex of Golden Core, and initially he felt this was quite beneath him, until he saw that the person standing beside Yan Qing was Ming Ze.
+
+He instantly regained his spirits and walked onto the stage with a serious expression.
+
+"Fellow Daoist Yan, please impart your wisdom,"
+
+The sect had given an order to keep the incident in Qingle City a secret, so nobody knew what had happened that day.
+
+Yan Qing raised his head to glance at Heng Bai, and Heng Bai, just as expected, shot him a cold sneer.
+
+Yan Qing roughly understood what Heng Bai was going for—was this his way of making him realize he's out of his depth by letting him get wholly wrecked in actual combat?
+
+Sure enough, the maidservant beside the mistress had mouth like blades and a heart like tofu.
+
+"Alright fellow Daoist, thanks for your gracious concession." Yan Qing offered an elegant smile, wove through the sea of bamboo, and easily made his way to the competition stage.
+
+However, once Sun Xu made to bring out his life-bound sword, Yan Qing stood in place dumbfounded—he realized that he couldn't just casually use his spirit silk as a weapon. The spirit silk by nature was a demonic tool. It was fine to use it for self defense, but to use it openly while just standing around on a competition stage…seemed a bit inappropriate.
+
+Yan Qing experienced a rare moment of having a guilty conscience. Only after a while did he say to Heng Bai, "Ah, wait a moment, Elder Heng Bai, I just realized I have no weapon."
+
+Question marks appeared on every face on every disciple in Futai Study Hall. "..." You've already entered Wangqing Sect, yet you still don't have a weapon?
+
+Heng Bai was fuming. "Look for one yourself\!"
+
+Yan Qing was originally just planning on picking up any old bamboo branch, but as his eyes scanned the ground, he noticed the corner of a white robe. Yan Qing stilled a bit, raised his head, and saw Xie Shiyi and Xi Zhaoyun standing right at the edge of the bamboo sea, quietly looking over this way.
+
+Xi Zhaoyun was bare-faced and wore a simple thornwood hairpin, a blue robe, and a sweet-tempered smile. Xie Shiyi next to her wore a jade crown and snow-white robes, refined and pristine, and his gaze was mild.
+
+A few lush green leaves fell in the bamboo forest, cleaving light and shadow.
+
+Heng Bai collapsed in the pavilion, grabbing a fan to cool the flames of rage ignited by Yan Qing, and his eyes rolled to the heavens. "Either fist fight with your bare hands or pick up a bamboo branch. What are you dawdling around for, huh? When you get to the Qingyun Conference there'll be no more time for you to waste away\! What, are you wanting for the heavens to just drop a peerless divine weapon into your lap?" 
+
+The disciples on the side laughed themselves into a flurry.
+
+Yan Qing hooked his lips in a smile, and headed toward Xie Shiyi's direction with rapid steps.
+
+Heng Bai: "Where do you think you're going—"
+
+The crowd's gazes followed his silhouette and saw the two figures at the edge of the bamboo forest. One after another, their faces paled in shock.
+
+Maybe they had never had the opportunity to see Xie Shiyi before, but nobody was unfamiliar with Xi Zhaoyun. Wangqing Sect's Supreme Elder, atop whose temples sat the thornwood hairpin crafted from the divine tree of the ancient god. A cultivator in the late stage of Soul Transformation, and the peak lord of Caiyu Peak.
+
+"El-Elder Xi?\!"
+
+Yan Qing trotted over, golden light and bamboo leaves tangled in his hair and sleeves. His eyes were smiling, and when he approached, a gust of green wind seemed to accompany him. He first greeted Elder Xi. "Greetings, Elder Xi." Afterwards, he cast a grin in Xie Shiyi's direction and said, "Immortal Master Xie, let me borrow your sword for a bit."
+
+Xi Zhaoyun had also wanted to return the greeting just now. But she ended up being so startled by Yan Qing's latter sentence that her warm smile froze on her face and astonishment filled her eyes. 
+
+—Bo-borrow his sword?
+
+Xie Shiyi coldly said, "You don't have a weapon of your own?"
+
+Yan Qing's reply was brisk. "Isn't my weapon too shameful to show others? Hurry hurry hurry."
+
+Xie Shiyi looked at him apathetically, yet he was already slowly taking out the Buhui Sword from his sleeve. The Buhui Sword was a divine weapon from the ancient god. It was a translucent white like snow from its tip to its edge, and the hilt also seemed to possess a blue gleam like condensed frost.
+
+Xi Zhaoyun hurried to stop him. "Duwei you mustn't, the Buihui Sword is a divine weapon, if other people use it they'll suffer backlash…"
+
+But before she could finish speaking, Yan Qing had already received the Buihui Sword, holding it in his hand with confidence and swagger.
+
+The moment it made contact with his hand, the Buihui Sword surged with a boundless ocean of killing intent, yet it dissolved like river water just as quickly, falling back into slumber. 
+
+"Thanks." Yan Qing lifted his lips in a smile and turned with sword in hand. With the way he entered Wangqing Sect and resided in Yuqing Peak, it would be impossible to conceal his relationship with Xie Shiyi from the sect. Anyways, he had never planned on covering it up in the first place.
+
+The youth came and left like the wind.
+
+Only Xi Zhaoyun was left frozen to the ground where she stood. She turned her head to look at Xie Shiyi, and in her eyes was shock, was bewilderment, was pure incredulity.
+
+She had thought Xie Shiyi's feelings toward Yan Qing were those of old aquaintances, of friends, and even if they became Dao companions, he would merely treat him with the politeness of an honored guest.
+
+She had thought Duwei's disposition was cautious and calm, that he could maintain and control anything within its proper bounds, including his seven emotions and six desires.
+
+Before, when faced with all of the indulgence and unusual behavior, she had merely felt happiness at the fact that Duwei did have some human feelings after all.
+
+Up until now. When he had directly given Yan Qing the Buhui Sword.
+
+Xi Zhaoyun finally realized.
+
+This was more than simple indulgence…
+
+Her face slightly paled, and she softly asked, "Duwei. To him, you…"
+
+Her voice wavered. "No, that's not right, Duwei…your Path of Heartlessness…"
+
+Xie Shiyi was silent. He pursed his lips and looked down. Blandly, he said, "Shishu, since you already know the answer, then don't ask."
+
+\*
+
+In front of every disciple's horrified eyes, Yan Qing handily won the competition.
+
+At night, in Nan City.
+
+"Were you really holding the Buhui Sword then?\!"
+
+"What is it like to feel the Buhui Sword in your hand? Don't all of the divine weapons from the ancient god have their own sword consciousness? How did you not suffer backlash?\!"
+
+Ming Ze had only just now recovered from the great shock he received during the day, and worship practically spilled from his eyes, the propriety he usually scrupulously abided by long forgotten.
+
+He fully unleashed his intrinsically chatty nature, firing off questions non-stop like fireworks.
+
+"Why would Xie-Shixiong come? He even let you borrow the Buihui Sword. Do you and Xie-Shixiong really just know each other by a simple matter of luck?"
+
+"Also, no wonder Xie-Shixiong is our Chief Disciple and at the top of the Qingyun Rankings. His bearing is graceful and charming, inspiring reverence in all."
+
+"The person next to Shixiong during the day seemed to be Elder Xi."
+
+ As he yapped away endlessly, Yan Qing dragged along the half-asleep Budezhi to walk around and browse.
+
+Xie Shiyi had come to deliver the pearl that was the token of the Immortal Alliance he had given him earlier. Because the pearl was extremely pure and cold by nature, Xie Shiyi had removed it for him while he formed his Nascent Soul. As for why the Buhui Sword didn't backfire on him, it was simply because its owner gave permission, that was all.
+
+Nanze Province's Nan City was held in a dark alleyway, and the buildings and walls within were especially short. At evening, red lanterns hung above while night crows flew below, and dark butterflies and light moths rose in vivid swarms. The tradings of Nan City were conducted with the utmost secrecy, so all who gathered here wore masks, adding to the demonic character of the place.
+
+Yan Qing observed the goods being peddled along the side of Nan City Street. He thought, *No wonder this is an infamous black market.* Fantastic oddities of every description with unimaginable uses littered the ground.
+
+A considerable group of people had gathered up, and Yan Qing, wanting to join in on the fun, walked over.
+
+He found they were surrounding an old man selling herbal medicines. Many kinds of wacky, outlandishly-looking herbal medicines were chaotically arranged on the ground, and sign was stuck beside them that said "Guaranteed to cure all diseases."
+
+These five shamelessly boastful words attracted the interest of more than a few.
+
+They all asked, "Are these medicines really guaranteed to cure all diseases?"
+
+The old man who was relaxing with his eyes closed cracked one eye open and said, "Naturally, I personally excavated these herbal medicines from Cangwang[^6] Seabed, only narrowly escaping with my life. They are guaranteed to cure all diseases and are equally effective on the young and old."
+
+—Cangwang Seabed?
+
+Upon hearing this phrase, most people would roll their eyes and walk away, cursing "fucking scammer."
+
+But some people wouldn't.
+
+She crouched on the ground, her white skirts imbued with pearly luster, her skin as soft as satin, and it was obvious from a glance that she was of noble blood. However, her actions were incredibly thoughtless and crude. She reached out her hand to grab a black-painted herbal medicine, broke off a piece, and directly tossed it into her mouth and chewed it.
+
+The old man was so angered by this action that both eyes went round, and he lunged over with bared fangs and brandished claws. "Aiyo, you little rascal, what are you doing?\! You dare steal a bite? —Spit it out\! You better spit it out\!"
+
+The white-skirted girl saw him lunging over, and hurriedly made a gesture of apology while shouting, "I was just tasting it, I didn't even taste that much\! I just wanted to see what exactly your medicine is, why are you so riled up?"
+
+The old man was so furious he could barely speak. "Not that much? Do you even know how expensive these medicines I'm selling are?\! Even selling *you* wouldn't be enough to cover the cost of that tiny bite you took\!"
+
+After spitting out a lump of black herbs with a *pah*, the white skirted girl thought, might as well start an argument. "How expensive are these? Aren't these just made from lingxi[^7] grass that's all over Nanze Province? You really think just because you painted it black it'll turn into a branch that a phoenix sat on and you can jack up the price? Shameless\!"
+
+The old man hastened to cover her mouth, and only wished to drive this messenger of death away. "Aiyo, you wicked girl, since you couldn't steal a bite you decided to venomously slander me\! Alright then, on behalf of your parents I'll have to thoroughly discipline you\!"
+
+The white-skirted girl was so frightened she started howling, "Ah, the scammer is killing people to silence them\!"
+
+However, before the old man could touch her, he was anchored in place by a pair of black shackles that firmly bound his hands. A young man wearing a gold mask emerged from the darkness. He was extremely tall and extremely thin, and his skin was so pale it gave off a strong ghostly aura. He looked like an eternally unchanging shadow.
+
+The white-skirted girl saw the person who arrived, and she immediately stood up, feeling wronged yet happy. She yelled, "Fei Yu\!"
+
+Yan Qing paid no heed to the man with the golden mask.
+
+He was watching as the instant the white-skirted girl rose, her skirts slightly rustled and exposed her ankle—there was no blood or flesh there, only a single white bone.
+
+"Miss." The voice of the man named Fei Yu was slightly raspy. When the girl reached out a hand to tug at his sleeves, he respectfully retreated a step.
+
+The white-skirted girl seemed to have long anticipated this reaction, and stuck out her tongue. "No fun."
+
+Fei Yu said, "Since it's no fun, how about we return to the sect then."
+
+The white-skirted girl promptly shook her head. "I refuse, I finally got the chance to come out for once, there's no way I'm going back. Day-in and day-out I stay at that ghastly apothecary without even a person to talk to, if I stay any longer I'm going to go crazy\!" She thought for a bit, then muttered, "Hmph, I'd be happier arguing with this scammer than going back."
+
+Her tone was lively, and her personality was also loveable.
+
+She was the very image of a fifteen or sixteen-year-old girl who had been doted on and spoiled by her family. However, this kind of image didn't suit her at all.
+
+The air and manner of her every move should be poised and graceful, gentle and composed, not willful and naive like this, as if she hadn't grown up yet
+
+Yan Qing looked at her ankle, of which only bone remained, and then looked at her face. Her mask of white feathers couldn't conceal the violent vestiges of being burned by fierce flames. Red scars converged on her cheeks.
+
+"Fei Yu, Fei Yu, isn't there an auction hall here? How about you take me there to have a look." The young girl seemed to only have around a decade of wisdom, and was radiant and energetic. Her eyes were clear and innocent, and when she smiled they seemed especially pure.
+
+Fei Yu was silent for a long while, before hoarsely saying, "Okay. Wherever you want to go, I'll accompany you."
+
+"Great."
+
+She happily applauded, completely ignoring the old scammer shivering on the ground.
+
+The cultivator at the young girl's side was at Great Ascension stage. Yan Qing didn't dare to act rashly and walked a few steps forward.
+
+But from the half of her face the young girl exposed, he had already guessed at her identity. He wasn't unfamiliar with this face. On the contrary, when he arrived in Nanze Province, perhaps this face was the first he became familiar with. Jade nose and cinnabar lips, endlessly refined and elegant. Perhaps the only difference was the nose was missing that particular mole.
+
+Back in the day she descended a cloudship to attend an immortal banquet, her cloud-like hair and misty tresses, her skirts blooming with flowers, her quiet laughter and gentle words captivating all. Now she was in this shady black market, squatting on the ground, chewing bitter mouthfuls of withered, rotten herbs.
+
+…She was Jing Ruchen.
+
+Much earlier, on the road from Huichun Sect to Wangqing Sect, Yan Qing had asked Tian Shu if Jing Ruchen was dead. Tian Shu said she hadn't died, but since so many years had passed, she had vanished without a trace, and nobody dared to ask about her.
+
+The Scarlet Spirit Fire had disabled both of her legs and utterly devastated her cultivation, and apparently it had damaged her memory as well. The benign, amiable Fuhua Sect Master of those days now was a young girl without thoughts or worries. It was unknown whether she should be considered fortunate or unfortunate.
+
+*TN: heng bai is a D1 hater and i love him for that*
+
+*disclaimer i translated this when i was jet lagged and delirious and haven't proofread it at all yet but i only have grammarly installed on my personal computer which i can't access until next week*
+
+[^1]:  Wangqing: unmoved (by emotion)  
+Shangyang: rising sun  
+Fuhua: floating flower  
+Liuguang: flowing light  
+Yushou: royal beast  
+Lingyao: spirit medicine  
+Foxiang: Buddhism  
+Zhanxing: divination  
+Hehuan: harmony, literally every dual cultivation sect is called this bye
+
+[^2]:  不得志, Trouble, omg my king is back. 
+
+[^3]:  Sichuanese expression
+
+[^4]:  Um I forgor if this has been mentioned before tbh
+
+[^5]:  地阶, earth step
+
+[^6]:  沧妄, deep ocean-blue, fantastic
+
+[^7]:  灵犀, rhino horn, supposed to have telepathic powers
