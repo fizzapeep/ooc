@@ -33,7 +33,7 @@ Total Word Count: {{ total_word_count }}
   <tbody>
     <tr>
       <td colspan="3">
-        <a href="https://banoffeetranslations.blogspot.com/2023/10/i-returned-to-the-immortals-youth-table-of.html">Chapters 1-25</a> by cela's translations
+        <a href="https://banoffeetranslations.blogspot.com/2023/10/i-returned-to-immortals-youth-table-of.html">Chapters 1-25</a> by cela's translations
       </td>
     </tr>
     {% for chapter in site.chapters %}
