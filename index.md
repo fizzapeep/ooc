@@ -14,15 +14,6 @@ layout: default
 
 # Welcome to OOC Translations
 
-soz for the janky site, will code improvements as i go:
-
-<ul>
-<li>dark mode</li>
-<li>hover over footnotes on desktop</li>
-<li>chapter/novel search</li>
-<li>new chapter notification</li>
-</ul>
-
 ## Novels List
 
 <ul>
