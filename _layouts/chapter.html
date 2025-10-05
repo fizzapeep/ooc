@@ -78,12 +78,13 @@ layout: default
   <!-- <script src="https://unpkg.com/@lyket/widget@latest/dist/lyket.js?apiKey=pt_9f8ebcf24c58b72e2a2b5474c2796b"></script>
   <div style="font-size: 24px" data-lyket-type="clap" data-lyket-id="{{page.url}}" data-lyket-template="heart"></div>
    -->
-  
-  <script async src="https://talk.hyvor.com/embed/embed.js" type="module"></script>
-  <hyvor-talk-comments
-  	website-id="14202"
-  	page-id=""
-  ></hyvor-talk-comments>
+
+  <script
+    async
+    src="https://talk.hyvor.com/embed/embed.js"
+    type="module"
+  ></script>
+  <hyvor-talk-comments website-id="14202" page-id=""></hyvor-talk-comments>
 
   <div id="disqus_thread"></div>
   <script>
@@ -91,12 +92,19 @@ layout: default
       this.page.url = "{{ site.url }}{{ site.baseurl }}{{ page.url }}";
       this.page.identifier = "{{ page.url }}";
     };
-     (function() { // DON'T EDIT BELOW THIS LINE
-    var d = document, s = d.createElement('script');
-    s.src = 'https://ooctranslations.disqus.com/embed.js';
-    s.setAttribute('data-timestamp', +new Date());
-    (d.head || d.body).appendChild(s);
+    (function () {
+      // DON'T EDIT BELOW THIS LINE
+      var d = document,
+        s = d.createElement("script");
+      s.src = "https://ooc-tl.disqus.com/embed.js";
+      s.setAttribute("data-timestamp", +new Date());
+      (d.head || d.body).appendChild(s);
     })();
-</script>
-<noscript>Please enable JavaScript to view the <a href="https://disqus.com/?ref_noscript">comments powered by Disqus.</a></noscript>
+  </script>
+  <noscript
+    >Please enable JavaScript to view the
+    <a href="https://disqus.com/?ref_noscript"
+      >comments powered by Disqus.</a
+    ></noscript
+  >
 </article>
