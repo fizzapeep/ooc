@@ -77,7 +77,8 @@ layout: default
   <div id="disqus_thread"></div>
   <script>
     var disqus_config = function () {
-      this.page.url = "https://fizzapeep.github.io{{ page.url }}";
+      this.page.url =
+        "https://fizzapeep.github.io{{ site.baseurl }}{{ page.url }}";
       this.page.identifier = "{{ page.url }}";
 
       console.log("Disqus page.url:", this.page.url);
